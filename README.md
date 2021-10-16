@@ -16,5 +16,5 @@
 
 
 ```
-<b>Follow IG</b><a href="https://instagram.com/_zxagung"></a>
+<b><a href="https://instagram.com/_zxagung">Follow INSTAGRAM</a></b>
 ```
