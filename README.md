@@ -30,6 +30,8 @@
 ```
 5.Apk Lari Ada Wibu Stres_1.2 No iklan / No Ads Mod By Z-zxq
 ```
+<b><a href="https://apkadmin.com/l9c3qro1iv9f/Lari_Ada_Wibu_Stres_1.2.apk.html">Apk Lari Ada Wibu Stres_1.2 No Iklan / No Ads</a></b>
+
 
 ```
 6.Apk Animein_1.3 No iklan / No Ads Mod By Z-zxq
